@@ -35,7 +35,7 @@
 
 **10)** Se tornar mais presente na vida dele / O pai quer que esta fase passe e que ele consiga se aproximar mais do filho dele.
 
-**11)**Cometer erros graves.
+**11)** Cometer erros graves.
 
 ## Página 16
 **1)** [...]Com as duas mãos **os livros** que estiver lendo ou coloque-os em cima **das mesas**, nunca dobrando **suas capas**. Não umedeça os dedos na lingua para virar a páginas. Sabia que a saliva atrai insetos e amarela o papel? 
