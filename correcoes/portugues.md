@@ -53,7 +53,7 @@ Examine bem **os livros** que está pedindo mostrando **aos donos** na hora, se 
 * **d)** Sobrecomum.
 * **e)** Dois gêneros.
 
-**3)**Lagartos,cobras,aranhas,escorpiões,cavalos-marinhos.
+**3)** Lagartos,cobras,aranhas,escorpiões,cavalos-marinhos.
 4.
 * **a)** Parte do corpo.
 * **b)** Dinheiro.
@@ -66,11 +66,11 @@ Examine bem **os livros** que está pedindo mostrando **aos donos** na hora, se 
 
 **5.**
 
-* **a)**Pelo adjetivo “atrasado”
+* **a)** Pelo adjetivo “atrasado”
 ## Página 18
-* **b)**Sobrecomum,dois gêneros.
-* **c)**Não dá para saber o gênero pois é uma palavra comum de dois gêneros, tanto que não há nenhum substantivo, adjetivo, ou artigo para diferenciar ele.
-* **d)**Dois anos depois,desaparecimento de adolecente que iria contra O policial militar ainda é misterio.
+* **b)** Sobrecomum,dois gêneros.
+* **c)** Não dá para saber o gênero pois é uma palavra comum de dois gêneros, tanto que não há nenhum substantivo, adjetivo, ou artigo para diferenciar ele.
+* **d)** Dois anos depois,desaparecimento de adolecente que iria contra O policial militar ainda é misterio.
 ## Página 20
 
 ![mapa conceitual](https://www.mediafire.com/convkey/c33c/yuwevjumbco9dpp7g.jpg)
