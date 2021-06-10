@@ -73,4 +73,4 @@ Examine bem **os livros** que está pedindo mostrando **aos donos** na hora, se 
 * **d)**Dois anos depois,desaparecimento de adolecente que iria contra O policial militar ainda é misterio.
 ## Página 20
 
-![mapa conceitual](https://www.mediafire.com/view/yuwevjumbco9dpp/jean_uwu001.jpg)
+![mapa conceitual](https://www.mediafire.com/view/yuwevjumbco9dpp/jean_uwu001.jpg/file)
